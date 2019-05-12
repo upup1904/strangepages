@@ -1,3 +1,3 @@
 ## sconce
 
-By knocking his sconce against them, sure.  G3.#
+By knocking his sconce against them, sure.  G3.x

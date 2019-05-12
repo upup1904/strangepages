@@ -1,6 +1,6 @@
 ## stubble goose
 
-G12.#
+G12.x
 
 wending herds of mostly mammals -- ewes, and rams and bullocks -- herds of
 the fourpin blossoms of animal husbandry -- among those ruminants come stubble geese.
