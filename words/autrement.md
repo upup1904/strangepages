@@ -1,4 +1,4 @@
 # autrement
 
 French, otherwise, alternately.  Does not occur but would if the novel
-were in French.  "François des Loges, autrement dit Villon"
+were in French.  "FranÃ§ois des Loges, autrement dit Villon"
