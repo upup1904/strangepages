@@ -2,9 +2,12 @@
 
 G12.103
 
-Amidstt otherwise fourpin wending generation of animal husbandry --
+Amidst the otherwise fourpin wending generation of animal husbandry --
 ewes, and rams and bullocks -- amidst those ruminants strut stubble
 geese.
+
+Alone among the geese, the name assigned to this one is associated
+with harvest.
 
 'sdouble geese: It rhymes with "double"; from O.F. *estouble*, Skeat
 who cites Chaucer *stoble-goose* C.T. 4351.
